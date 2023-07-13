@@ -1,0 +1,1 @@
+Los ejercicios son hasta el catorce, empece con el de la guia teorica, por eso es del 1(guiateorica) al 15 (catorceguiapractica)
